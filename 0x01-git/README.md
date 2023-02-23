@@ -1,1 +1,1 @@
-Coding is sweet and lovely
+Coding is cool and lovely
